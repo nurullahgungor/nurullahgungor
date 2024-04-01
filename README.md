@@ -1,4 +1,4 @@
-### Hi, there! :trollface:
+### Hi, there! :fish: :thought_balloon:
 
 I'm [Nurullah](http://nurullahgngr.com/), a software developer from Turkey.
 
